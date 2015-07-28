@@ -1,1 +1,1 @@
-# The GIS Group is ok!
+# The GIS Group is really cool!
